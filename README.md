@@ -1,2 +1,12 @@
 # Bluewave-Style
-BLUEWAVE Style L'élégance au service de votre style. Spécialiste des maillots de football et des parfums d'exception, BLUEWAVE Style vous offre une expérience alliant style, confort et personnalisation. Nos engagements : · Accompagnement personnalisé · Services sur mesure · Qualité durable  Be unique – Be bold – Be blue 💙
+BLUEWAVE Style — Bien plus qu’un style, une communauté.
+
+Un univers où se rencontrent style, lifestyle, produits, services et opportunités. Maillots, parfums et bien plus encore : BLUEWAVE Style vous accompagne avec des offres pensées pour votre vibe et vos besoins.
+
+Nos engagements :
+· Qualité & diversité
+· Services sur mesure
+· Accompagnement personnalisé
+· Une communauté qui évolue ensemble
+
+Be unique – Be bold – Be blue 💙
